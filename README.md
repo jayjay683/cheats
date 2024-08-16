@@ -1,2 +1,1 @@
-# cheats copy and paste this link for the cheats https://fromsmash.com/nbRJ8ioZn0-dt
-and enjoy
+just copy and past this link https://fromsmash.com/xU5aaQmMDY-dt
